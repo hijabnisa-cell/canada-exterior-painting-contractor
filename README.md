@@ -78,7 +78,7 @@ As a result, exterior surfaces remain in good condition for longer periods.
 
 ## Learn More
 
-Learn more about exterior painting contractor services here: YOUR-LINK-HERE
+Learn more about [exterior painting contractor](https://dhapainting.ca/exterior-painting-contractor/) services here
 
 ## Conclusion
 
